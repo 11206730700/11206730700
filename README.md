@@ -1,16 +1,23 @@
-## Hi there 👋
+## Bem vindo ao meu perfil 
 
-<!--
-**11206730700/11206730700** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-Eu sou o(a) _11206730700/11206730700_ ou _Sunny/Sun_(Ensolarado/Sol);
 
-Here are some ideas to get you started:
+-Meus Pronouns: She/her ou they/them
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-Atualmente eu estudo na escola Professor Paulo Luís Decourt e curso o Alura;
+
+-Atualmente estou aprendendo língua estrangeira e programação;
+
+-Gosto de Ler e escrever e passear em eventos relacionados ao Japão;
+
+## Você pode entrar em contato comigo 📫
+
+**Gmail:**
+- _oiosabrina49@gmail.com_
+
+**Instagram:** 📱
+- _@sabrinamartins_
+
+**Pinterest:**
+
+-_Sunny_Emilly_

@@ -1,23 +1,23 @@
-## Bem vindo ao meu perfil 
+## Bem vindo ao meu perfil 🌈
 
--Eu sou o(a) _11206730700/11206730700_ ou _Sunny/Sun_(Ensolarado/Sol);
+![](https://media1.tenor.com/m/Ze1QfM4cwX8AAAAC/anime-hi.gif)
 
--Meus Pronouns: She/her ou they/them
+-Eu sou a Sunny/Sun_(_Ensolarado/Sol_);
 
--Atualmente eu estudo na escola Professor Paulo Luís Decourt e curso o Alura;
+-Meus Pronouns: She/her
 
--Atualmente estou aprendendo língua estrangeira e programação;
+-Atualmente estou aprendendo língua estrangeira (_inglês_) e programação;
 
--Gosto de Ler e escrever e passear em eventos relacionados ao Japão;
+-Meu hobby é _Ler e escrever_;
+
+-Amo passear ao ar livre e vizitar eventos japoneses
 
 ## Você pode entrar em contato comigo 📫
 
-**Gmail:**
-- _oiosabrina49@gmail.com_
+-_oiosabrina49@gmail.com_
 
-**Instagram:** 📱
-- _@sabrinamartins_
+-_sabrinamartins2401@gmail.com_
 
-**Pinterest:**
+-_00001120673070sp@al.educacao.sp.gov.br_
 
--_Sunny_Emilly_
+![](https://media1.tenor.com/m/uByBqIWKnjwAAAAC/cute-girl-playing-on-nintendo-switch.gif)
